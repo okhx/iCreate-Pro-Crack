@@ -6,9 +6,9 @@ so my old github was banned by the fucnking dumbass bitches that js sended repor
 
 now you just need delete the time checkin and it will work i think
 
-#**DOWNLOAD**
+# **DOWNLOAD**
 so you js can download here i think - https://h8rsolutions.itch.io/icreate-pro-crack-icreatepro-reuplod
 
-#**ANYTIME**
+# **ANYTIME**
 https://cracked.do.am/
 
